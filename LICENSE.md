@@ -1,4 +1,4 @@
-# 
+# Ultime arbitrage trading bot préréglages for Mac OS | Professionnel arbitrage trading bot préréglages for PC Windows. Featuring API d'échange centralisé and API d'échange décentralisé — optimized for maximum performance.
 
 
 
